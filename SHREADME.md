@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @shakthiharini6
 - 👀 I’m interested in .ai/ ml./ Dl
 - 🌱 I’m currently learning .ml..
-- 💞️ I’m looking to collaborate on IBM / Google.
+- 💞️ I’m looking to collaborate with a team and company like ibm / Google/ open ai.
 - 📫 How to reach me .. contact shakthiharini6@gmail.com.
 
 <!---
